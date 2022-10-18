@@ -3,6 +3,13 @@ Submitting this since this guy tried scamming me (still recovered at least some 
 YOUR STUDENT PLAGIARIZED, HE/SHE IS NOT THE PERSON WHO CREATED THIS, AND I WILL NEVER SUBMIT THIS ESSAY TO ANY HIGH SCHOOL, COLLEGE, OR ANY SCHOLARSHIP PROGRAM)
 
 
+
+
+
+
+
+
+
 Rules…without them, we live like animals. That is why most civilizations in history have laws to establish right and wrong, and of course, what rights all of humanity
 have, from the biggest of empires, down to the individuals. The term “human rights” was coined, and a gamut of rights all of society should arguably have was established, from the right to have plentiful food and water to be granted the chance to thrive in society to having educational services to bring out the mental gifts in people, or lack thereof. Take the United States as an example, as they fought to seek independence and ratify and maintain a series of amendments, 
 some of which address and decide natural rights for people. Discussing natural rights and going into detail about said amendments is essential to understand how the Amendments protect people’s natural rights. 
